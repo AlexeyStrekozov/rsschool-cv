@@ -1,7 +1,7 @@
 # Strekozov Alexey
 
-[87026877600](87026877600) 
 
+[87026877600](87026877600) 
 
 [strekozovalexey@gmail.com](strekozovalexey@gmail.com)
 
